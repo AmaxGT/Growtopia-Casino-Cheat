@@ -1,4 +1,4 @@
-# Growtopia-Casino-Cheat
+# Growtopia-Roulette-Cheat
 Growtopia Roulette Wheel Modifier | Undetected | By AmaxCheats
 
 Go to Releases tab
